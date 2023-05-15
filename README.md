@@ -1,7 +1,7 @@
 # WgetCloud
 > 稳定⭐⭐⭐⭐⭐
 
-> 价格⭐⭐⭐⭐
+> 价格⭐⭐⭐⭐  
 （通过这个链接注册新用户全员无门槛8折优惠券,只能用一次，目前每充值一百可以抽奖，还有75折优惠）:  
 [WgetCloud](https://invite.wgetcloud.ltd/auth/register?code=Gcnh) 
 > 开业时间：2021
