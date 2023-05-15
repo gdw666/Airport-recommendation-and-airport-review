@@ -1,3 +1,1 @@
-# Clash-for-windows-
-Clash for windows下载配置教程
-https://bafangyun.vip/#/register?code=BvgOe0mZ
+[WgetCloud]([https://markdown.com.cn](https://invite.wgetcloud.ltd/auth/register?code=Gcnh)) 
