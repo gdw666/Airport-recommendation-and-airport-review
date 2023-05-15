@@ -26,3 +26,11 @@
 > 价格⭐⭐⭐⭐⭐⭐⭐⭐⭐（最低三块钱一年每月10G）
 > 服务⭐⭐⭐⭐支持 ChatGpt       
 [三毛机场](https://www.xn--ehqx7tcnnope.com/#/register?code=fX9kH43z)（可以试试反正便宜😄）  
+
+
+# flyingbird   
+> 稳定⭐⭐⭐⭐     
+> 价格⭐⭐⭐⭐ （最低15块/月100G）  
+> 服务⭐⭐⭐⭐支持 ChatGpt    
+[flyingbird](https://www.fyb-aff.com/auth/register?code=FtQL)  
+
