@@ -3,7 +3,7 @@
 > 速度⭐⭐⭐⭐⭐ 延迟200ms以下   
 > 价格⭐⭐⭐⭐（10G/12元/无限时）  
 > 服务⭐⭐⭐⭐支持 ChatGpt  
-[相见欢](https://s.xjhsub1.top/#/register?code=YludLNBR) （注册送12小时试用）速度贼拉快
+[相见欢]([https://s.xjhsub1.top/#/register?code=YludLNBR](https://web.xjh0001.com:58888/#/register?code=YludLNBR)) （注册送12小时试用）速度贼拉快
 
 
 
