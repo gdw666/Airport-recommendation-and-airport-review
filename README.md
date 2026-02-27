@@ -20,6 +20,15 @@
 > 落地ip数量： 59
 > 协议：Shadowsocks+ShadowsocksR +Trojan+Vmess
 
+# 蓝盘云(便宜小众性价比高)
+> 稳定⭐⭐⭐⭐⭐  
+> 速度⭐⭐⭐⭐⭐    
+> 价格⭐  
+> 服务⭐⭐⭐⭐ 
+[蓝盘](https://lanpanyun.top/#/register?code=HqRsHoIL) （注册送50G/月）速度贼拉快
+
+
+
 
 
 
