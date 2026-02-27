@@ -5,11 +5,7 @@
 > 服务⭐⭐⭐⭐支持 ChatGpt  
 [相见欢](https://dash.52xjh.com/register?code=YludLNBR) （注册送12小时试用）速度贼拉快
 
-# 三毛机场  
-> 稳定？？？？？   
-> 价格⭐⭐⭐⭐⭐⭐⭐⭐⭐（最低三块钱一年每月10G）
-> 服务⭐⭐⭐⭐支持 ChatGpt       
-[三毛机场](https://www.xn--ehqx7tcnnope.com/#/register?code=fX9kH43z)（可以试试反正便宜😄）  
+2026最新
 
 # WgetCloud
 > 稳定⭐⭐⭐⭐⭐  
